@@ -149,3 +149,12 @@ Tulisan ayat-ayat Al-Qur’an yang ditulis oleh mereka disimpan di rumah Rasulul
 
 3. Caranya adalah dengan memercayainya dengan sepenuh hati. Tidak hanya rajin membacanya tetapi perlu juga mengamalkannya sebagai bentuk pemahaman kita dari membaca Al-Quran. 
 
+**Contoh perilaku iman kepada Kitab-kitab Alloh SWT:**
+
+1. Memiliki rasa hormat dan menghargai kitab suci sebagai kitab yang memiliki kedudukan di atas segala kitab yang lain
+2. Berusaha menjaga kesucian kitab suci dan membelanya apabila ada pihak lain yang meremehkannya
+3. Mau mempelajari dengan sungguh-sungguh petunjuk-petunjuk yang ada di dalamnya, baik dengan membaca sendiri maupun menghadiri majlis ta’lim
+4. Berusaha untuk mengamalkan petunjuk-petunjuknya sesuai dengan kemampuan yang dimiliki
+5. Berusaha untuk menyebarluaskan petunjuk-petunjuknya kepada orang lain, baik di lingkungan keluarga sendiri maupun masyarakat
+6. Berusaha untuk memperbaiki bacaannya dengan mempelajari ilmu tajwid
+7. Tunduk kepada hukum yang ada di dalam kitab suci dalam menyelesaikan suatu permasalahan
